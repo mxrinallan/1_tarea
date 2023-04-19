@@ -25,7 +25,7 @@ Conforme la sobrepesca se convierte cada vez más en una amenaza latente para nu
 
   
 ### **Criadero de algas marinas:**
-![**Imagen 1.** Algas marinas, Vancouver, Cánada, Fuente: National Geographic.](C:\Users\marin\Downloads\PROCESAMIENTO 2023\algas_marinas.jpg)  
+![**Imagen 1.** Algas marinas, Vancouver, Cánada, Fuente: National Geographic.](C:\Users\marin\Downloads\Tarea3_\TAREA1\1_tarea\imagen1algas.jpg)  
 
 
   
