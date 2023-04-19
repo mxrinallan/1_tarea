@@ -31,7 +31,7 @@ Conforme la sobrepesca se convierte cada vez más en una amenaza latente para nu
   
 
 ### **Criadero de mariscos:**
-![**Imagen 2.** Criadero de mariscos, Fuente: Google Images](https://www.elvigia.net/u/fotografias/fotosnoticias/2013/12/13/125182.jpg) 
+![**Imagen 2.** Criadero de mariscos, Fuente: Google Images](C:\Users\marin\Downloads\algas.jpg) 
 
 
 ## **Acuicultura: ¿Futuro prometedor?** 
